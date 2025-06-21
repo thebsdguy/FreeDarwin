@@ -1,6 +1,9 @@
 This is a Hobby project im a noob who loves apple lol🍎
 
 
+credit to 0x16000 for help and inspiration 
+
+
 
 
 
