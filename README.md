@@ -1,3 +1,13 @@
+This is a Hobby project im a noob who loves apple lol🍎
+
+
+
+
+
+
+
+
+
 What is XNU?
 ===========
 
